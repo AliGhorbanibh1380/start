@@ -1,4 +1,2 @@
-
-I AM Master.
-
-Salam Ba to
+I AM Ali
+saaaaaaa
